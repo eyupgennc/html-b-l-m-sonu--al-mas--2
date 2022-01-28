@@ -1,2 +1,2 @@
-# html-b-l-m-sonu--al-mas--2
+# html-bolum-sonu-calismasi
 html-bölüm-sonu-çalışması-2
